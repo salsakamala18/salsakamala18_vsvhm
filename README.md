@@ -6,3 +6,6 @@
 
 
 > vsvhm_gnididid - [ZEN - Jurnal Dokumenter](https://m.youtube.com/@JurnalDokumenter) - 2024_11_14 - [MENGENAL "SHADOW" DALAM DIRI KALIAN](https://youtu.be/N4BjUDL-yNE) <img src="media/N4BjUDL-yNE/Screenshot_2024-11-20-06-31-08-94.png"> <img src="media/N4BjUDL-yNE/Screenshot_2024-11-20-06-41-03-94.png">
+
+
+vsvhm_glididid - [Pikong](https://m.youtube.com/@Pikong1996) - 2024_11_02 - [Diam kamu Setelah Ditolak Merusak Mereka dari dalam!](https://youtu.be/qjIry_YKLPw) <img src="media/qjIry_YKLPw/Screenshot_2024-11-20-07-00-44-65.png">
