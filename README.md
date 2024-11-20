@@ -11,4 +11,4 @@
 vsvhm_glididid - [Pikong](https://m.youtube.com/@Pikong1996) - 2024_11_02 - [Diam kamu Setelah Ditolak Merusak Mereka dari dalam!](https://youtu.be/qjIry_YKLPw) <img src="media/qjIry_YKLPw/Screenshot_2024-11-20-07-00-44-65.png">
 
 
-> vsvhm - [AKU DAN KAMU]() - [4 HAL YANG DIPIKIRKAN WANITA SAAT KAMU CUEKIN DIA | AKU DAN KAMU](https://youtu.be/hF6Om3OetkM)
+> vsvhm - [AKU DAN KAMU] - [4 HAL YANG DIPIKIRKAN WANITA SAAT KAMU CUEKIN DIA | AKU DAN KAMU](https://youtu.be/hF6Om3OetkM)
